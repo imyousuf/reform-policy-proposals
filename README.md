@@ -1,4 +1,4 @@
-# reform-policy-proposals
+# Bangladesh 2024 Reform Policy Proposals
 It is a collection of my thoughts with the hope that collectively can be built into an adaptable policy! Maximum participation is fully desired!
 
 This work is licensed under a Creative Commons Attribution-ShareAlike 4.0 International License.
